@@ -87,13 +87,13 @@ Organizations operating in regulated environments require IT management that pri
 
 As a trusted **managed IT company for compliance**, we help organizations maintain alignment with regulatory standards through structured processes, monitoring, and documentation. Businesses that require ongoing audits and governance benefit from consistent, transparent IT operations.
 
-For organizations seeking expert guidance, our [**managed IT company for compliance**](https://www.j3ktech.com/location/johns-creek/data-center-services-near-me-in-johns-creek/) services provide structured support aligned with industry regulations and operational needs.
+For organizations seeking expert guidance, our [**managed IT company for compliance**](https://www.j3ktech.com/location/decatur/managed-it-services-near-me-in-decatur/) services provide structured support aligned with industry regulations and operational needs.
 
 ---
 
 ## Logistics-Focused IT Strategy and Infrastructure Support
 
-Logistics organizations require IT partners who understand operational workflows and system dependencies. As a [**managed IT provider for logistics**](https://www.j3ktech.com/location/decatur/data-center-services-near-me-in-decatur/), J3K Technologies delivers IT management designed for scalability, uptime, and integration across logistics platforms.
+Logistics organizations require IT partners who understand operational workflows and system dependencies. As a [**managed IT provider for logistics**]( https://www.j3ktech.com/location/johns-creek/managed-it-services-near-me-in-johns-creek/), J3K Technologies delivers IT management designed for scalability, uptime, and integration across logistics platforms.
 
 Our logistics-focused IT services support:
 - Distributed infrastructure management  
